@@ -7,7 +7,7 @@
 
 <a href=https://angelisnthere.straw.page/>Strawpage!</a>
 
-<a href=https://angelisnthere.carrd.co/>carrds!!</a>
+<a href=https://https://text.is/riddlemediddlee/>rentry/text.is!</a>
 
 <a href=https://en.pronouns.page/@Painkiller-_->Pronouns page!</a>
 
