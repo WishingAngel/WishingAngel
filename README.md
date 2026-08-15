@@ -13,4 +13,3 @@
 
 <a href=https://wishingangel.atabook.org/>Ata!</a>
 
-https://files.catbox.moe/eyn67v.png
