@@ -2,7 +2,7 @@
 
   
 
-![](https://files.catbox.moe/76gcyb.png)
+![](https://files.catbox.moe/8aythb.png)
 
 
 <a href=https://angelisnthere.straw.page/>Strawpage!</a>
